@@ -7,6 +7,4 @@ okpk
 fdsfs
 
 
-fjkldsjflkdsjf
-jljlkjljl
 
